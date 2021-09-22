@@ -1,0 +1,1 @@
+Following these lectures: https://www.youtube.com/playlist?list=PLyqSpQzTE6M9whs2Vz_80ons0vRrvGMV5
